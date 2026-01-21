@@ -1,1 +1,1 @@
-# YSWS-Anchor
+I don't understand what "GitHub Repo URL * This should be the GitHub repo of the High Seas/YSWS project/Club site that you made the logo for! Remember - you must have submitted your actual coding project to High Seas before filling out this form." means. It says to make a logo and get stickers.
